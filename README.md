@@ -1,3 +1,4 @@
+hey i didnt how to get your ig account or even how to send you a message this my ig account sl.mustafa_ need help with algerian channels thank you and sorry
 # freeiptv, how to use the "ALL.m3u" file link procedure explained here : https://receptioniptv.blogspot.com/
 
 ![x](https://img.shields.io/badge/Tu%20aimes%20streamer%3F%20Parfait%21%20Ici%20c%27est%20%C3%A0%20toi%3A%29-8A2BE2)
